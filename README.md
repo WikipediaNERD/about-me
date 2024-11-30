@@ -19,6 +19,8 @@ Born April 8, 2008 – Sixteen, Aries, and done with anyone’s opinions. Small 
 
 Chill Chaos – I’m calm on the surface, crazy underneath. Don’t let the laid-back vibe fool you—I’ll shake things up when I feel like it.
 
+Touch my gear, and I’ll ruin your day,I don’t care. I’m obsessed with my stuff, and yeah, my attitude’s screwed up, but that’s your problem now. You can’t bring back what you took, and that’s why you shouldn’t have messed with it. No fixing this, no forgiveness. Deal with it.
+
 Social Rules – Wanna chat? Cool. Find me on PonyTown, slide into private, or come over. But don’t be a baby about it; I don’t have time for hesitation.
 
 
