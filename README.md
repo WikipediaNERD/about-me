@@ -15,7 +15,7 @@ Streamer Incoming – Get ready, ‘cause I’m coming. Streaming’s next, and 
 
 Music Maniac – When I’m not gaming, I’m making beats that hit hard. Music’s not just background noise; it’s where I channel everything. Mixing sounds, twisting beats, and layering chaos. If you don’t get it, that’s fine—it’s not for you.
 
-Born April 8, 2008 – Sixteen, Aries, and done with anyone’s opinions. Small country in Europe, but I don’t keep my life small. You can call me Danny or Javier, but don’t think I care about labels. You want to know me? Then step up.
+Born April 8, 2008 – Sixteen, Aries, and done with anyone’s opinions. Small country in Europe, but I don’t keep my life small. You can call me Judas or Javier, but don’t think I care about labels. You want to know me? Then step up.
 
 Chill Chaos – I’m calm on the surface, crazy underneath. Don’t let the laid-back vibe fool you—I’ll shake things up when I feel like it.
 
