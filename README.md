@@ -79,4 +79,4 @@ Roblox User: CHROMEWEBSET ━━━━━━━━━━━━━━━━━━
 
 Insta: wikipedia.bastard ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-GitHub: WikipediaNERD ━━━━━━━━━━━━━━━━━━━━━━━━━━
+patreon; [WikipediaNERD](https://www.patreon.com/c/FREAKYWIKIPEDIAGUY) ━━━━━━━━━━━━━━━━━━━━━━━━━━
