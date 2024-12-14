@@ -63,7 +63,7 @@ Chill Chaos – Calm outside, chaos inside. Don’t mistake it.
 
 ╔════════════════════════╗
 
-Touch My Gear, Face Wrath – Don’t touch my stuff. U’ll regret it. ╚════════════════════════╝ ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+╚════════════════════════╝ ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 Social Rules – Wanna chat? Don’t hesitate. Too slow? I’m out. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
