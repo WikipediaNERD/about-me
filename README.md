@@ -7,21 +7,24 @@ wsg, I’m Judas/Javi
 
 Male Online, Not IRL – Online, I’m whoever I want. Don’t think u know me IREADME.NOW
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━RL. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ RL. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 Gamer Freakin’ Fiend – Don’t waste my time. Whether it’s Roblox (user: CHROMEWEBSET), PonyTown, Valorant, CoD, CS, if it’s a grind, I’m on it. Not here for jokes.
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ ⛧⛧⛧⛧⛧⛧⛧⛧⛧⛧
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+⛧⛧⛧⛧⛧⛧⛧⛧⛧⛧
 
 Horror Addict – Twisted, dark, I’m all in. If u scared, stay away.
 
-🚨 WARNING: Don’t Try to Save Me from What I Like.
+🚨 WARNING: Don’t Try it.
 
 ⛧⛧⛧⛧⛧⛧⛧⛧⛧⛧
 
 ▓▒░ Mind Maze Rider ░▒▓
 
-– I look chill, but my mind’s a mess. If u can’t handle it, bounce. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯ Anger on Lock – Quick temper, but I keep it locked. Test me, but don’t cry when it turns south.
+– I look chill, but my mind’s a mess. If u can’t handle it, bounce .
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
+⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯ Anger on Lock – Quick temper, but I keep it locked. Test me, but don’t cry when it turns south.
 
 🚨 WARNING: Don’t Push My Buttons.
 
@@ -35,9 +38,13 @@ ICP or GTFO – Juggalo life. Don’t like it? Keep movin’. Not here for appro
 
 ⛧⛧⛧⛧⛧⛧⛧⛧⛧⛧
 
-✦ Flirt Vibes Only ✦ – Flirtin’ is fun. Can’t handle it? Bounce.
+✦ Flirt Vibes Only ✦ 
+– Flirtin’ is fun. Can’t handle it? Bounce.
 
-🚨 WARNING: Don’t Take It Too Seriously. ✦ Flirt Vibes Only ✦ ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ ⛧⛧⛧⛧⛧⛧⛧⛧⛧⛧
+🚨 WARNING: Don’t Take It Too Seriously.
+✦ Flirt Vibes Only ✦
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
+⛧⛧⛧⛧⛧⛧⛧⛧⛧⛧
 
 Streamer Comin’ Later – Eventually. Been holdin’ back, but when I do go live, chaos. Raw, unfiltered. U can’t handle it? You’ll get left behind.
 
@@ -47,11 +54,13 @@ Streamer Comin’ Later – Eventually. Been holdin’ back, but when I do go li
 
 ♛ Guitarist & Singer ♛ –
 
-Strummin’ and singin’ my heart out. If u can’t vibe, don’t bother. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Strummin’ and singin’ my heart out. If u can’t vibe, don’t bother.
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 Born April 8, 2008 – 16, Aries, small country, big attitude. Call me Judas, call me Javi,(JAVIER) I don’t care.
 
-🚨 WARNING: Age’s a Number, Attitude’s Real. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+🚨 WARNING: Age’s a Number, Attitude’s Real.
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
 
@@ -63,21 +72,26 @@ Chill Chaos – Calm outside, chaos inside. Don’t mistake it.
 
 ╔════════════════════════╗
 
-╚════════════════════════╝ ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+╚════════════════════════━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-Social Rules – Wanna chat? Don’t hesitate. Too slow? I’m out. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Social Rules – Wanna chat? Don’t hesitate. Too slow? I’m out.
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-CAS Fann – Cigarettes after sex? That’s my vibe. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+CAS Fann – Cigarettes after sex? That’s my vibe.
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 Billie Eilish Devotee – Her songs hit harder than your problems. Don’t talk to me if u don’t feel it.
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-Steam User: wikipedia.com ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Steam User: wikipedia.com
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 Roblox User: CHROMEWEBSET and other Main one is th3gae_one
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-Insta: wikipedia.bastard ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Insta: wikipedia.bastard 
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-patreon; [WikipediaNERD](https://www.patreon.com/c/FREAKYWIKIPEDIAGUY) ━━━━━━━━━━━━━━━━━━━━━━━━━━
+patreon; [WikipediaNERD](https://www.patreon.com/c/FREAKYWIKIPEDIAGUY)
+━━━━━━━━━━━━━━━━━━━━━━━━━━
