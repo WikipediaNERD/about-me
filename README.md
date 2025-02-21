@@ -106,17 +106,30 @@ ENIMEM
 and other trendy songs on tik tok mostlyi find there..
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 Into youtubers always watching : The boys : specialEddie and his friends
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 Markiplier
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 MatPat
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 Still in Dream smp fan <3 ik i'm red flag for this so fk that i do that for techno<33 never leave the gang
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 3FS fan for fnaf
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 Sam and Colby
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 CaseOH
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 AISTELIO from my country youtuber.
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 The boys gaming other one yas ofc biggest fan jajajaja
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 The boys react SHUT UP I ADD MORE
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 Arcade Chick
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 My full attenion to Pedro Pascal.<3 i fw this 
+mostly the interviews
 
 
 
