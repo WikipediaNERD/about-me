@@ -83,6 +83,18 @@ CAS Fann – Cigarettes after sex? That’s my vibe.
 Billie Eilish Devotee – Her songs hit harder than your problems. Don’t talk to me if u don’t feel it.
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+nirvana
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Evanscence
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+the Cranberries
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Sleeptoken
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Radio head <3
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+and other trendy songs on tik tok mostlyi find there..
 
 Steam User: wikipedia.com
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
