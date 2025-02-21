@@ -93,5 +93,5 @@ Roblox User: CHROMEWEBSET and other Main one is th3gae_one
 Insta: wikipedia.bastard 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-patreon; [WikipediaNERD](https://www.patreon.com/c/FREAKYWIKIPEDIAGUY)
+patreon; [WikipediaNERD](https://www.patreon.com/c/FREAKYWIKIPEDIAGUY) probably banned in there
 ━━━━━━━━━━━━━━━━━━━━━━━━━━
