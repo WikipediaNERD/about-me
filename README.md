@@ -1,4 +1,5 @@
-# README.NOW
+t '
+    # README.NOW
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 wsg, I’m Judas/Javi
@@ -102,6 +103,9 @@ bruno mars
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 ENIMEM
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+SHAGGY 2 DOPE
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+TWIZTID
 
 and other trendy songs on tik tok mostlyi find there..
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
