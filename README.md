@@ -106,6 +106,14 @@ ENIMEM
 SHAGGY 2 DOPE
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 TWIZTID
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+VIOLENT J
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Kung fu Vampire
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Sir mix-a - lot
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+Zug Izland
 
 and other trendy songs on tik tok mostlyi find there..
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
