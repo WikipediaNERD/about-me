@@ -1,4 +1,4 @@
-t '
+zo.. i'm in many many fandoms that i lost the count and er i don't remember the old old fandom names too '
     # README.NOW
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
