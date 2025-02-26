@@ -6,7 +6,8 @@ wsg, I’m Judas/Javi
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-Male Online, Not IRL – Online, I’m whoever I want. Don’t think u know me IREADME.NOW
+Male Online, Not IRL – Online, I’m whoever I want. 
+
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ RL. ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
