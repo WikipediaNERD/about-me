@@ -73,7 +73,7 @@ Chill Chaos – Calm outside, chaos inside. Don’t mistake it.
 ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
 
 ╔════════════════════════╗
-
+zo...squid game fan here jaja...ER i am big simp there
 ╚════════════════════════━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 Social Rules – Wanna chat? Don’t hesitate. Too slow? I’m out.
